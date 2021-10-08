@@ -1,4 +1,4 @@
-# Lilith-Thoughts
+# Lilith Thoughts
 
 ## Hi welcome!
 
