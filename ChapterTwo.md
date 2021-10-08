@@ -1,4 +1,4 @@
-## Chapter 2: Worse
+## Chapter 2: Worse (2021/October/8)
 
 The people here are cruel
 
