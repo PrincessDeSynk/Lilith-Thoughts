@@ -1,16 +1,3 @@
-# Lilith Thoughts
-
-## Hi welcome!
-
-This is the first entry into this entire "personal public journal" thing here but...I figured I'd introduce myself before anything else happens.
-
-My name is Lilith, but if that's too difficult to remember just refer to me as Lily or Lyn. 
-I'm a young girl attending a typical public school. Senior. 5th year. Post-secondary again soon.
-
-Anyways, the entire Idea of this project is simply to give some insight on how I feel from a day to day basis. Blogger/Blogs in general are terrible to me. They require a following and knowledge, where as this project can be divided into just...If I share, or if you accidentally come across it and become intrigued about me and my story, then that's fair.
-
-Let's move onto Chapters.
-
 ## Chapter 1: Liar (2021/October/8)
 
 Today is another day. I've upset already one of my friends due to a slight change in my mannerisms. Apparently becoming confusing and ending with them completely frustrated at me due to how I word things in texts/messages differently.
@@ -45,6 +32,3 @@ I clutch my cure behind closed doors.
 One day, I'll be able to find the truth. 
 
 If you're the one who's meant to be hun...if you're my soulmate...my final piece...then show me, heal me, protect me...I'll love you and be loyal to you, every single day. I promise. I love you.
-
-
-## Chapter 2: ///Coming Soon///
